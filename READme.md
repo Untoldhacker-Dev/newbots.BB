@@ -15,6 +15,7 @@
 • Features and design for these bots
 <br>
 • Popular Categories of Bots that are needed in the store
-</code>
-
-[Or You can Alse Drop Your Ideas here](t.me/UntoldHacker)
+</code><br>
+<h2>
+[ Or You can Also Drop Your Ideas here](t.me/UntoldHacker)
+  </h2>
