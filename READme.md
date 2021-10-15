@@ -17,5 +17,5 @@
 • Popular Categories of Bots that are needed in the store
 </code><br>
 
-[ Or You can Also Drop Your Ideas here](t.me/UntoldHacker)
+[ Or You can Also Drop Your Ideas here](https://t.me/UntoldHacker)
   
